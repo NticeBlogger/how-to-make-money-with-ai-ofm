@@ -8,7 +8,7 @@ The secret isn't just generating "good" AI images. The secret is knowing how to 
 
 
 
-## 🚀 The Platform: Why Use Ntice?
+## 🚀 [The Platform: Why Use Ntice?](https://ntice.app)
 
 Most mainstream platforms ban pure AI content. **Ntice** is the industry leader because it welcomes AI models.
 
@@ -16,7 +16,9 @@ Most mainstream platforms ban pure AI content. **Ntice** is the industry leader 
 * **Higher Payouts:** Keep up to 85% of your earnings.
 * **AI Integration:** Built-in tools for voice and chat.
 
-
+<a href="https://ntice.app">
+  <img src=https://fanvuemodels.ghost.io/content/images/2026/02/image-27.png width="600" alt="Ntice" />
+</a>
 
 ## 5. Instagram DM Sales: The 100% Profit Hack
 
@@ -34,6 +36,8 @@ Top creators earn an extra **$5,000–$20,000 per month** simply by letting fans
 * **The Amazon Wishlist Trick:** Link an Amazon or Throne wishlist in your bio. Add items like lingerie, jewelry, or tech ranging from $50 to $5,000.
 * **The Reward:** Tell the fan: "If you buy this for me, I’ll make a video wearing it just for you." They buy the gift, and they usually tip extra afterward.
 
+<img src=https://fanvuemodels.ghost.io/content/images/2026/02/image-37.png width="400" alt="Amazon Wishlist" />
+
 ## 3. Custom Requests: Identifying the "Whales"
 
 The majority of your income (over 80%) will come from "Whales"—the top 5–10 fans who spend thousands of dollars every month to feel a personal connection.
@@ -41,6 +45,8 @@ The majority of your income (over 80%) will come from "Whales"—the top 5–10 
 * **Custom Content:** Use AI tools to create hyper-specific requests. If a fan wants the model to hold a sign with his name, you can generate it in minutes.
 * **Premium Pricing:** Charge $200–$500 for short custom videos and $1,000+ for long-form "fantasy" requests.
 * **Authority Tip:** Always ask about their job or hobbies. High-income fans should be presented with higher-priced offers.
+
+<img src=https://fanvuemodels.ghost.io/content/images/2026/02/image-38.png width="400" alt="Custom Content" />
 
 ## 2. Pay-Per-View (PPV): The Scalable Cash Cow
 
