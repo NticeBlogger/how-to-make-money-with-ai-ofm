@@ -82,7 +82,7 @@ Stop searching for tutorials and start building your empire.
 
 > **Note:** Real students are hitting $5,000 in their first week.
 
-**[Learn More & Join the Factory →](https://example.com)**
+**[Learn More & Join the Factory →](https://blog.ntice.app/recommends/aiofmcourse/)**
 
 
 ## How to Use This Guide
